@@ -1,5 +1,5 @@
 # pro-codes090 :computer: 
-# [About me🌏:](https://www.prathamvora.dev) | [LinkedIn :tv:](https://www.linkedin.com/in/prov/) | [Instgram :camera:](https://www.instagram.com/prathamvora12/) 
+# [About me 🌏](https://www.prathamvora.dev) | [LinkedIn :tv:](https://www.linkedin.com/in/prov/) | [Instgram :camera:](https://www.instagram.com/prathamvora12/) 
 
 #
 
